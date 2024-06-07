@@ -6,7 +6,7 @@
 
 ## Видеодемонстрация работы программного обеспечения
 
-- **https://www.youtube.com/watch?v=8mZHjqRj2WY**
+- **https://www.youtube.com/watch?v=Jj5eT_-c5do&t=8s**
 
 ✅ БЕСПЛАТНЫЙ ТЕСТ СОФТА НА ВАШЕЙ МОДЕЛИ 
 <div>
